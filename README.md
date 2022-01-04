@@ -1,0 +1,9 @@
+- 👋 Hi, I’m @KennyNR
+- 10 years of my life i fight with fire!🚒  
+- 👩‍🚒 yes, i am firefighter from could Russia, Moscow!
+- 👀 I’m interested in immigrate in India, or Thailand...
+- 🌱 I’m currently learning this life and world without my lovely and perfect wife, because I am stupid idiot, and I just lost she!
+- 💞️ I’m looking to some flat and work in Thailand or India...
+- 📫 How to reach me... This is wery intresting and good question! I need only one!!! I need sorry from my lovely girl, my little angel!!! If she can't sorry me, i need steel bolls for Live without she! 
+- ❗ If you have specific proposals about housing or work in my lovely countries, i whait and open for any  suggestions! 
+- 🤘Thanks you for spending your time for reed this Sheet!🤘
